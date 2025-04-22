@@ -6,4 +6,4 @@ Studio, sperimento e bevo (molto) caffè per restare sveglio e curioso.
 I study, experiment, and drink (a lot of) coffee to stay sharp and curious
 
 🔗 Sites: (https://linkin.bio/salvoorlando/)
----
+
